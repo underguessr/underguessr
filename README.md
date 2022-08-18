@@ -3,6 +3,10 @@
 
 👋 Hi, I’m @underguessr
 
+🎩 My discord is jinx#6828
+
+🌎 My server is: https://discord.gg/sbwmYBzSTn
+
 💞️ My Real Name is Nicholas
 
 👀 My Age Is 17+
